@@ -1,1 +1,1 @@
-This will son include a classic cv.
+This will soon include a classic cv.
